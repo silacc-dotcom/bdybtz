@@ -1,2 +1,2 @@
-# zumba-mc-darwin
-Zumba Masterclass in Darin with ZJ's Benjamin and Rodrigo June 20 2026
+# BDYBTZ
+Bodybeatz Studio with Sila, in person and online dance and fitness classes
